@@ -1,1 +1,1 @@
-first week after propation weeks
+amendment from git hub
